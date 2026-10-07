@@ -1,0 +1,2 @@
+# premium-root-prune-001-root-pruning-nebari-spread-b
+Your bonsai's root structure is either thriving or slowly suffocating—and most growers have no system to track which. The Root Pruning &amp; Nebari Spread Bonsai Hub transforms root management from guesswork into a documented, repeatable process.  This Notion template gives you a centralized hub to plan, track, and optimize root pruning cycles while bu
